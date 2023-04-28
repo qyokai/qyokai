@@ -12,10 +12,11 @@ Contact me on Discord
 **reese#9398**
 
 Listed below are designated platforms for the aforementioned projects:
-	https://discord.gg/MSDMV2BtDK (Yo-Kai Watch: New Game+)
 
-	https://discord.gg/ewATkwPypY (Splatoon Legends)
+https://discord.gg/MSDMV2BtDK (Yo-Kai Watch: New Game+)
 
-	https://discord.gg/YfDZn47fV2 (Yo-Kai Watch: Universe! Spirits N' Souls)
+https://discord.gg/ewATkwPypY (Splatoon Legends)
 
-	https://discord.gg/46eRpRqmb3 (Sonic Unleashed 3D)
+https://discord.gg/YfDZn47fV2 (Yo-Kai Watch: Universe! Spirits N' Souls)
+
+https://discord.gg/46eRpRqmb3 (Sonic Unleashed 3D)
